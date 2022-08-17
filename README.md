@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @krrparrish
+- 👀 I’m interested in GIS, geography, museums, and libraries.
+- 🌱 I’m currently learning Google IT Support Professional Certificate.
